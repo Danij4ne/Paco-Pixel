@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <b style="color:#00ffff;">Traficante legal de nostalgia desde 1989*</b><br>
+  <b style="color:#00ffff;">Traficante legal de nostalgia desde 2001*</b><br>
   <i>"Si no arranca, la soplo. Si no funciona, la resucito."</i>
 </p>
 
